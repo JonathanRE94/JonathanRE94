@@ -1,4 +1,8 @@
-## Hi there 👋
+## Hi there 👋 I'm Jonathan
+
+How to reach me:
+Email - jonathanre924@gmail.com
+LinkedIn - https://www.linkedin.com/in/rejona/
 
 <!--
 **JonathanRE94/JonathanRE94** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
