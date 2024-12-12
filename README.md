@@ -1,7 +1,9 @@
 ## Hi there 👋 I'm Jonathan
 
 How to reach me:
+
 Email - jonathanre924@gmail.com
+
 LinkedIn - https://www.linkedin.com/in/rejona/
 
 <!--
