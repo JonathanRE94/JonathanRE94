@@ -2,7 +2,7 @@
 
 How to reach me:
 
-Email - jonathanre924@gmail.com
+Email - jonathan.ebenezer41@gmail.com
 
 LinkedIn - https://www.linkedin.com/in/rejona/
 
