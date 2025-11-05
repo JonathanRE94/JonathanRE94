@@ -2,7 +2,7 @@
 
 How to reach me:
 
-Email - jonathan.ebenezer41@gmail.com
+Email - jebenez1@asu.edu
 
 LinkedIn - https://www.linkedin.com/in/rejona/
 
